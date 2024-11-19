@@ -1,5 +1,5 @@
 # 💫 About Me:
- Cybersecurity, AI and ML<br>I’m looking to collaborate on ...Cybersecurity and Digital Forensics project<br>I’m currently learning ... Cybersecurity, Artificial Intelligence and Machine Learning.<br>⚡ Fun fact: ...Confidence is all you need to get started.
+ I'm Ahmad Mustapha<br>I’m looking to collaborate on ...Cybersecurity and Digital Forensics project<br>I’m currently learning ... Cybersecurity, Artificial Intelligence and Machine Learning.<br>I can be reached on Alansary1006@gmail.com<br>⚡ Fun fact: ...Confidence is all you need to get started.
 
 
 ## 🌐 Socials:
